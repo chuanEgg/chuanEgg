@@ -1,0 +1,4 @@
+- I am chuanEgg
+- I do not know exactly how to code
+- Can someone pls tech me coding
+- I wanna git gud
